@@ -231,7 +231,7 @@ of the course, please contact the
 
 
 ### Students with Disabilities
-We aim to create an environment in which all students can succeed in this course.  If you have a disability, please contact the Office for Students with Disability (OSD), which is located in University Center 202 behind Center Hall, to discuss appropriate accommodations right away.  We will work to provide you with the accommodations you need, but you must first provide a current Authorization for Accommodation (AFA) letter issued by the OSD.  You are required to present their AFA letters to Faculty (please make arrangements to contact me privately) and to the OSD Liaison in the department in advance so that accommodations may be arranged.
+We aim to create an environment in which all students can succeed in this course.  If you have a disability, please contact the [Office for Students with Disabilities](https://osd.ucsd.edu/) (OSD) to discuss appropriate accommodations right away.  Students requesting accommodations due to a disability must provide a current Authorization for Accommodation (AFA) letter (paper or electronic) issued by the [Office for Students with Disabilities](https://osd.ucsd.edu/).  We will work to provide you with the accommodations you need.  We welcome any feedback on how to make the course more accessible and inclusive.
 
 ### Basic Needs/Food Insecurities
 If you are experiencing any basic needs insecurities (food, housing, financial resources), there are resources available on campus to help, including The Hub and the Triton Food Pantry.
